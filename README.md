@@ -1,0 +1,1 @@
+# azaz-cup.githup.io
